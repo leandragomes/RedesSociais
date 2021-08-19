@@ -1,2 +1,2 @@
 # RedesSociais
- Um pouco sobre mik e minhas redes sociais
+ Um pouco sobre mim e minhas redes sociais
